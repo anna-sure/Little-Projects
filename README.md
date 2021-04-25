@@ -1,1 +1,1 @@
-hope create small projects as more as i can :)
+hope code small projects as more as i can :)
